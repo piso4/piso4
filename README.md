@@ -7,4 +7,4 @@
 
  ${\textsf{\color{#FF9B19} ۶ৎ }}$ 
  
-<a href="https://flipside.atabook.org" target="_blank">atabook</a>　　　<a href="https://fIipside.straw.page" target="_blank">strawpage</a>
+<a href="https://flipside.atabook.org" target="_blank">atabook</a>　　　<a href="https://pisso4.straw.page" target="_blank">strawpage</a>
