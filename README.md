@@ -7,8 +7,7 @@
 $$\color{#D3DD64FF}coy\  \color{#739526}or\  \color{#93B14CFF}alex\ \color{#739526}.\  ☘️  \color{#739526}he\  \color{#D3DD64FF}/\  \color{#93B14CFF}they\ \color{#739526}.$$
   <img width="63" height="18" alt="IMG_7517" src="https://github.com/user-attachments/assets/248beaa5-e00b-40e4-990c-6c517367d39a" />
 </p>
-<p align=center><img width="20" height="20" alt="IMG_7516" src="https://github.com/user-attachments/assets/fb35b221-9a87-47d6-ae75-ce4b9de7b660" />
-   $$\color{#93B14CFF}gender\ \color{#D3DD64FF}faun\  \color{#739526}demi\ \color{#739526}-\ \color{#93B14CFF}omni\  \color{#D3DD64FF}boy\ \color{#739526}thing\ \color{#739526}.$$   <img width="20" height="20" alt="IMG_7515" src="https://github.com/user-attachments/assets/1802b2a1-2415-40fd-837c-a22c58df58f1" />
+<p align=center><img width="20" height="20" alt="IMG_7516" src="https://github.com/user-attachments/assets/fb35b221-9a87-47d6-ae75-ce4b9de7b660" /> $$\color{#93B14CFF}gender\ \color{#D3DD64FF}faun\  \color{#739526}demi\ \color{#739526}-\ \color{#93B14CFF}omni\  \color{#D3DD64FF}boy\ \color{#739526}thing\ \color{#739526}.$$   <img width="20" height="20" alt="IMG_7515" src="https://github.com/user-attachments/assets/1802b2a1-2415-40fd-837c-a22c58df58f1" />
 </p>
 <p align=center><img width="600" height="auto" alt="IMG_7512" src="https://github.com/user-attachments/assets/eecb9dcd-1d7f-4c0a-87fe-25755ec5ecd6" /></p>
 <p align=center
