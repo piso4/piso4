@@ -1,3 +1,8 @@
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zqos2n2gnsccdlm3ggz3nf242m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=798839&bar_color_cover=false">
+  </a>
+</p>
 <img width="1500" height="600" alt="IMG_7506" src="https://github.com/user-attachments/assets/5ae873e4-6a43-43bd-948f-776426ee07de" />
 <p align=center><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Are+You+Serious&pause=1000&color=739526&center=true&multiline=true&width=435&lines=the+luck+lady+...+is+a+BOY+%2C+anthony+!+fine+!" alt="Typing SVG" /></a></p>
 <p align=center><img width="400" height="auto" alt="IMG_7510" src="https://github.com/user-attachments/assets/a7b5724d-8826-4cea-b776-964c91160756" /></p>
